@@ -1,1 +1,2 @@
 # Cappuccino
+This recipe will teach you how you can make some hot, creamy and delicious cappuccino! Prep time can be around 5 minutes, Cooking time can take 5 minutes. Total- 10 minutes. This recipe serves only 1 serving.
